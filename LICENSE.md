@@ -1,4 +1,4 @@
-#  
+#  Experience jump to steal lucky blocks like never before with hidden Scripts for jump to steal lucky blocks, the #1 Script. Includes one-hit kill and
 
 
 
